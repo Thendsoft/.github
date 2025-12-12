@@ -1,0 +1,1 @@
+## At Thendsoft, we focus on developing solutions that are fast, secure, and scalable. We believe in efficient technology that can handle complex tasks without compromising user experience or performance.
